@@ -14,6 +14,8 @@ https://vk.com/im?sel=c353
 https://discord.com/invite/c6hnPZNXwk
 
 
+
+Перед использованием материалов из данного репозитория просьба связаться с автором:
 # Контакты
 - crispuscrew71@gmail.com
 - t.me/Samnfuter
